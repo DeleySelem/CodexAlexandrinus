@@ -76,7 +76,7 @@ Part Four: The 20 Universal Patterns – In-Depth Analysis
   · 7.4 A Final Word
   · Bibliography
 
-Part Two (of the overall book, containing the continuation of Parts Three and Four)
+Part Five: Behavioral Control and Black Magic
 
 Chapter 8: The Evolution of Behaviorism into Social Laws – The Psychological Connection Between Mass Behavioral Control and Black Magic
 
